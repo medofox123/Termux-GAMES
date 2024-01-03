@@ -11,7 +11,7 @@ Instagram : https://www.instagram.com/x_mr.fox_x/ <br>
 
 <br>
 <p align="center">
-  <img alt="Smiley face" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQITFRgoj6DXjCjx_tgJt-_YN9yFjG3JqySZQ&usqp=CAU">
+  <img alt="Smiley face" src="https://telegra.ph/file/46b26731ff79ac6644690.png">
 </p>
 <br>
 
